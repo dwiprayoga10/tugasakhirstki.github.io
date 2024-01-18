@@ -1,1 +1,0 @@
-# tugasakhirstki.github.io
